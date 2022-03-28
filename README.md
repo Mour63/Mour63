@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Mour63
+- 👨‍💻 Software Engineer 
 - 👀 I’m interested in Crypto/Nfts 
 - 🌱 I’m currently Software Engineer
 - 📫 How to reach me   : Mour63.me Or ayouboukrirou@gmail.com
 - Interested in Blockchain Developement  
-- Psychologie Enthuisast
-- Reading 📚  and traveling  🏝 Lover 
+- 🧠 Psychologie Enthuisast
+- 📚 Reading and 🏝traveling Lover.

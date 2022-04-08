@@ -5,3 +5,5 @@
 - 📫 How to reach me   : Mour63.me Or ayouboukrirou@gmail.com  
 - 🧠 Psychologie Enthuisast
 - 📚 Reading and 🏝traveling Lover.
+- 🗒 Minimalist
+- Web Entrepreneur
